@@ -1,3 +1,1 @@
-![Uploading Screenshot 2025-08-04 155448.png…]()
-
-![Uploading Screenshot 2025-08-04 155448.png…]()
+https://github.com/deepthi931/My-Resume/blob/main/Screenshot%202025-08-04%20155448.png?raw=true
